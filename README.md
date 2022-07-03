@@ -1,2 +1,2 @@
 # AP Workshops
-autumn 2020🍂 🍁 
+Autumn-2020
